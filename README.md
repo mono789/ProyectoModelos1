@@ -13,3 +13,4 @@ María Cristina Vergara Quinchia
 Cédula:1035232771
 Programa:Ingeniería de Sistemas
 
+Link Video Entrega 2: https://www.youtube.com/watch?v=o0nRn_D6n24
